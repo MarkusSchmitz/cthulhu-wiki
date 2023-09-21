@@ -1,0 +1,8 @@
+---
+title: "Pnakotic Manuscripts"
+tags: ""
+---
+This work claims to be a translation of an otherwise unknown series of documents (The Pnakotic Manuscripts) brought to the West after the fall of Constantinople in 1453. These are said to be Greek translations of even older documents chronicling an otherwise unknown epoch of the pre-human history of Earth. The unidentified translator claims to have obtained this work, also called The Pnakotik Scrolls and The Scrolls of Pnakotus, from an unnamed refugee from the Byzantine Empire. This translation was made in conjunction with the help of another (also unnamed) Greek scholar. The body of the text is a haphazard jumble of myths outlining the history of various fabulous kingdoms and civilizations of Earth before the rise of Man (as well as other places specifically said to be not of this world). Discussions include a catalogue of various races in residence on the Earth during the ages before man, the actions of various legendary figures, and the myriad inhuman deities worshiped by both. A final section traces the mythic history of the book itself, from fragments uncovered in some vast non-human library (the so-called “city of Pnakotus”) to the scribes of vast pre-historic human empires who consulted with improbable “others” (some sort of flying, barrel-shaped beings) in their efforts to understand the work. It seems likely that this work is a compilation of a host of mystical texts, many of which are preserved only in fragmentary form.
+
+Das Buch beschreibt ausserdem Methoden und Versuche der Kontaktaufnahme mit jenen Rassen/Völkern, die dir allerdings unverständlich und unvollständig vorkommen.
+[img[Pnakotic_Quotes.png]]
