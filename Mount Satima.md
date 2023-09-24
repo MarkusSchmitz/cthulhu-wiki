@@ -1,0 +1,1 @@
+Berg in Kenia. Kultstätte des [[Kult_der_blutigen_Zunge]]
